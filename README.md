@@ -1,1 +1,1 @@
-IF YOU DON'T PUT STARS, I WILL REMOVE YOU FROM THIS ACCOUNT.
+stars potrunga nanbargalay 💖😁
